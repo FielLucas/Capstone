@@ -1,2 +1,2 @@
 # Capstone
-https://2captcha.com
+http://captchaforum.com/
